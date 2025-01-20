@@ -1,3 +1,3 @@
-# website design using figma
+website design using figma
 
 all materials are used for non-commercial purposes and all belong to the copyright holders
